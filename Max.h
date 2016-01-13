@@ -1,1 +1,2 @@
-Define Max is awesome
+Define Max is awesome!!
+Yes, she is
